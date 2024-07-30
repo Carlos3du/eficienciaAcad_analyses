@@ -1,1 +1,0 @@
-# eficienciaAcad_analyses
